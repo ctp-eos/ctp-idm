@@ -1,3 +1,5 @@
+[![ctp-energy site-link](https://github.com/ctp-eos/ctp-idm/blob/main/ufos-over-whitehouse.png)](https://www.ctp-energy.com)
+
 ## 🌌 CTP is Disclosure Movement – Summary
 
 This repository serves as a live tracker for the public emergence of the **CTP is Disclosure Movement** and the growing awareness of **CTP Energy** and **CTP Energy Sciences** across social media, global news, and cultural discourse.
