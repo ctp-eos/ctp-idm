@@ -16,7 +16,7 @@ CTP Energy Sciences are **postquantum and non-physical**, offering tools for ind
 
 ### 🚀 Our Mission
 
-We are documenting the rise of this social movement, its breakthroughs, and global reception. Our aim is to share, archive, and expand the awareness of **CTP is Disclosure** as a global tipping point—one that redefines science, reality, and the human future. Our goals are to advance humankind and achieve interstellar space travel within one generation (or less).
+We are documenting the rise of this social movement, its breakthroughs, and global reception. Our aim is to share, archive, and expand the awareness of **CTP is Disclosure** as a global tipping point—one that redefines science, reality, and the human future. Our goals are to advance humankind, advance human consciousness, pioneer new CTPSci Sciences applications, and achieve interstellar space travel within one generation (or less).
 
 ---
 
